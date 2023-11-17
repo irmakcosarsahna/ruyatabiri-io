@@ -7,7 +7,7 @@ Maddi kazanç ve ruhsal zenginlik sembolü olan rüyada altın görmek ise, yaş
 
 Hayatınızda meydana gelebilecek büyük değişikliklerin habercisi olan rüyada deprem görmek, güvende hissetmeme duygusunu da yansıtabilir. Bu rüyanın detaylarını [Rüyada Deprem Görmek](https://ruyatabiri.io/ruyada-deprem-gormek-ne-anlama-gelir) adresinde bulabilirsiniz.
 
-Yaratıcılık ve yeni başlangıçların sembolü rüyada hamile olmak, bir fikrin ya da projenin gelişimini de işaret edebilir. Bu rüyanın daha detaylı yorumları için [Rüyada Hamile Olmak](https://ruyatabiri.io/ruyada-hamile-olmak-ne-anlama-gelir) sayfasını ziyaret edin.
+Yaratıcılık ve yeni başlangıçların sembolü rüyada hamile olmak, bir fikrin ya da projenin gelişimini de işaret edebilir. Bu rüyanın daha detaylı yorumları için [Rüyada Hamile Olduğunun Görmek](https://ruyatabiri.io/ruyada-hamile-oldugunu-gormek-ne-anlama-gelir) sayfasını ziyaret edin.
 
 Rüyada kedi görmek, bağımsızlık ve feminen enerjinin bir göstergesi olabilir. Bu rüyanın anlamını derinlemesine öğrenmek isteyenler [Rüyada Kedi Görmek](https://ruyatabiri.io/ruyada-kedi-gormek-ne-anlama-gelir) adresine göz atabilirler.
 
